@@ -13,4 +13,4 @@ Follow @
 1. Instagram - codelx21 (TechnoLX21)
 2. Twitter - @LxTechno
 3. Github - https://github.com/TechnoLX
-4. Youtube - https://www.youtube.com/channel/UCSjmTHiFunCjNwQEKxWEMpA
+4. Youtube - https://youtu.be/NEt_-Ebou2M
